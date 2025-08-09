@@ -3,7 +3,7 @@
   <img src="https://i.postimg.cc/pLYFydFf/tumblr-0248d6b491e03fb764ba51767c92ce0b-19c35e04-250.gif"/> <img src="https://i.postimg.cc/6qkv42c0/tumblr-18ca26d769a04c4491a255372e573e74-8dea5748-250.gif"/> <img src="https://i.postimg.cc/ncm7b2Vw/tumblr-f991c4ce41c80ad451bbff62e43e7226-b9dc2d10-250.gif"/>
 </p>
 <p align="center">
-  ☆*:.｡.o(≧▽≦)o.｡.:*☆ ellie / mae ! ☆*:.｡.o(≧▽≦)o.｡.:*☆
+  ☆*:.｡.o(≧▽≦)o.｡.:*☆ ellie / mae / clover ! ☆*:.｡.o(≧▽≦)o.｡.:*☆
 </p>
 <p align="center">
  <img src="https://i.postimg.cc/9FgPC0yr/tumblr-2fdb7f14e41a6cab538acbf7f9e84e69-66b286c1-250.gif"/>
