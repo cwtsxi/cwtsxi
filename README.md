@@ -19,7 +19,7 @@
   <p align="center">
    <img src="https://i.postimg.cc/B6K39tLz/glitter-text-11.gif"/>
   <p align="center">
-  ♡ i'm fictionkin, otherkin, physical therian, an age & pet regressor, a yumeshipper/selfshipper, a queer inclusionist, a fujoshi & himejoshi and neutral on ship discourse. if you dislike any of these, better off just hiding me! i won't bother you if you don't bother me.
+  ♡ i'm fictionkin, otherkin, physical therian, an age & pet regressor, a yumeshipper/selfshipper, a queer inclusionist, a fujoshi & himejoshi and have no opinion on ship discourse. if you dislike any of these, better off just hiding me! i won't bother you if you don't bother me.
   </p>
   <p align="center">
   ♡ it can take me a long time to warm up to people, so if i seem reserved while speaking to you that's why. i'm much quicker to open up if we share interests! talk to me about sonic, super mario, pokemon, my little pony, ukagakas, or smiling friends and i'll probably put my guard down right away!
