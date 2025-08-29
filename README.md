@@ -1,5 +1,5 @@
 <p align="center">
- <img src="https://i.postimg.cc/RZGTMF1g/glitter-text-8.gif"/>
+ <img src="https://i.postimg.cc/cJ7vVQ6v/glitter-text-13.gif"/>
 <p align="center">
   <img src="https://i.postimg.cc/DyvFSpkB/2d7d485a-1.png"/>
 </p>
