@@ -1,34 +1,34 @@
 <p align="center">
- <img src="https://i.postimg.cc/cJ7vVQ6v/glitter-text-13.gif"/>
+ <img src="https://files.catbox.moe/2zc9do.gif"/>
 <p align="center">
-  <img src="https://i.postimg.cc/DyvFSpkB/2d7d485a-1.png"/>
+  <img src="https://files.catbox.moe/kyresq.png"/>
 </p>
 <p align="center">
- <img src="https://i.postimg.cc/mrvBhbBH/ezgif-3ac636ddd1df25.gif"/>
+ <img src="https://files.catbox.moe/k4l4iy.gif"/>
 </p>
 <p align="center">
- <img src="https://i.postimg.cc/DyvFSpkB/2d7d485a-1.png"/>
+ <img src="https://files.catbox.moe/kyresq.png"/>
 <p align="center">
- <img src="https://i.postimg.cc/jSKLM471/glitter-text-10.gif"/>
+ <img src="https://files.catbox.moe/ubmkeh.gif"/>
 <p align="center">
-  🎀ৎ୭ call me ellie or clover! <img src="https://i.postimg.cc/C5mKRWvp/c04a6915-original.gif"/> i'm a 22 year old girlboyenby abrosexual :P <img src="https://i.postimg.cc/pr2TX2JB/c631bcd9-original.gif"/>
+  ellie/clover/mayhem/luna 💉 she/purr/it/he ♡ abrosexual genderflux girlboyenby 🦊 <img src="https://i.postimg.cc/pr2TX2JB/c631bcd9-original.gif"/>
 </p>
 <p align="center">
-˚. ˖ artist & old internet enthusiast full of autistic whimsy ( ´ ∀ `)ノ～ ♡
+♡ fursuiter, artist, pony enthusiast, fanfic writer, music lover, old internet enjoyer ♡
 </p>
   <p align="center">
-   <img src="https://i.postimg.cc/B6K39tLz/glitter-text-11.gif"/>
+   <img src="https://files.catbox.moe/pv7nb5.gif"/>
   <p align="center">
-  ♡ i'm fictionkin, otherkin, physical therian, an age & pet regressor, a yumeshipper/selfshipper, a queer inclusionist, a fujoshi & himejoshi and have no opinion on ship discourse. if you dislike any of these, better off just hiding me! i won't bother you if you don't bother me.
+  ♡ i'm fictionkin, otherkin, physical therian, an age & pet regressor, a selfshipper, a queer inclusionist, a fujoshi & himejoshi and have no opinion on ship discourse. if you dislike any of these, better off just hiding me! i won't bother you if you don't bother me.
   </p>
   <p align="center">
-  ♡ it can take me a long time to warm up to people, so if i seem reserved while speaking to you that's why. i'm much quicker to open up if we share interests! talk to me about sonic, super mario, pokemon, my little pony, ukagakas, vinesauce, oneyplays or smiling friends and i'll probably put my guard down right away!
+  ♡ it can take me a long time to warm up to people, so if i seem reserved while speaking to you that's why. i may also suddenly disconnect mid-convo. i do this when i get nervous! it's not personal.
   </p>
   <p align="center">
-  ♡ i don't have a giant dni list! this does NOT mean i'm okay with anybody and everybody interacting, it means i'm responsible for curating MY online experience! 
+  ♡ no DNI! doesn't mean im cool with anyone interacting, just means i prefer to curate my own experience. let's talk like adults and see how we click!
   </p>
   <p align="center">
-  <img src="https://i.postimg.cc/DyvFSpkB/2d7d485a-1.png"/>
+  <img src="https://files.catbox.moe/kyresq.png"/>
   <p align="center">
   before you go, have a peek at my stamp collection! it's one of my favorite ways to express myself ^_^ (epilepsy warning!!)
   <p align="center">
