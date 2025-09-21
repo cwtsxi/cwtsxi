@@ -11,7 +11,7 @@
 <p align="center">
  <img src="https://files.catbox.moe/ubmkeh.gif"/>
 <p align="center">
-  ellie/clover/mayhem/luna 💉 she/purr/it/he ♡ abrosexual genderflux girlboyenby 🦊 <img src="https://i.postimg.cc/pr2TX2JB/c631bcd9-original.gif"/>
+  ellie/clover/mayhem/luna 💉 she/purr/it/he ♡ abrosexual genderflux girlboyenby 🦊 22 yrs old <img src="https://i.postimg.cc/pr2TX2JB/c631bcd9-original.gif"/>
 </p>
 <p align="center">
 ♡ fursuiter, artist, pony enthusiast, fanfic writer, music lover, old internet enjoyer ♡
