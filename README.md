@@ -1,36 +1,39 @@
 <p align="center">
- <img src="https://files.catbox.moe/2zc9do.gif"/>
+ <img src="https://files.catbox.moe/s6flvw.gif"/>
 <p align="center">
-  <img src="https://files.catbox.moe/kyresq.png"/>
+  <img src="https://files.catbox.moe/cbruxi.png"/>
 </p>
 <p align="center">
- <img src="https://files.catbox.moe/k4l4iy.gif"/>
+ <img src="https://files.catbox.moe/acb6u9.gif"/>
 </p>
 <p align="center">
- <img src="https://files.catbox.moe/kyresq.png"/>
+ <img src="https://files.catbox.moe/cbruxi.png"/>
 <p align="center">
- <img src="https://files.catbox.moe/ubmkeh.gif"/>
+ <img src="https://files.catbox.moe/g4ecjx.gif"/>
 <p align="center">
-  ellie/clover/mayhem/luna 💉 she/purr/it/he ♡ abrosexual genderflux girlboyenby 🦊 22 yrs old <img src="https://i.postimg.cc/pr2TX2JB/c631bcd9-original.gif"/>
+  ellie/clover/mayhem/luna 🦇 she/purr/it/he ♡ abrosexual genderflux girlboyenby ♱ 22 yrs old
 </p>
 <p align="center">
-♡ fursuiter, artist, pony enthusiast, fanfic writer, music lover, old internet enjoyer ♡
+♱ fursuiter, artist, fanfic writer, music lover, old internet enjoyer ♱
 </p>
 <p align="center">
- currently hyperfixated on: hellsing, my little pony, lapfox trax/halley labs, vinesauce, & my OCs ♡
+ ♱ hyperfixes: hellsing, my little pony, super mario, vinesauce, my OCs ♱
+ </p>
+<p align="center">
+ ♱ my f/os: alucard (hellsing), seras victoria (hellsing), renard (lapfox), piers (pokemon), king sombra (mlp). sharing is fine, just please be aware that i am protective of how i personally view these characters.
   <p align="center">
-   <img src="https://files.catbox.moe/pv7nb5.gif"/>
+   <img src="https://files.catbox.moe/45kxcc.gif"/>
   <p align="center">
-  ♡ i'm fictionkin, otherkin, physical therian, an age & pet regressor, a selfshipper, a queer inclusionist, a fujoshi & himejoshi and have no opinion on ship discourse. if you dislike any of these, better off just hiding me! i won't bother you if you don't bother me.
+ ♱ fictionkin/otherkin and a selfshipper. i take both seriously. doubles and sharing are two things i dont overly mind but just know i can be protective. mischaracterization can piss me off pretty easy.
   </p>
   <p align="center">
-  ♡ it can take me a long time to warm up to people, so if i seem reserved while speaking to you that's why. i may also suddenly disconnect mid-convo. i do this when i get nervous! it's not personal.
+  ♱ it can take me a long time to warm up to people, so if i seem reserved while speaking to you that's why. i may also suddenly disconnect mid-convo. i do this when i get nervous! it's not personal.
   </p>
   <p align="center">
-  ♡ no DNI! doesn't mean im cool with anyone interacting, just means i prefer to curate my own experience. let's talk like adults and see how we click!
+  ♱ no DNI! doesn't mean im cool with anyone interacting, just means i prefer to curate my own experience. let's talk like adults and see how we click!
   </p>
   <p align="center">
-  <img src="https://files.catbox.moe/kyresq.png"/>
+  <img src="https://files.catbox.moe/cbruxi.png"/>
   <p align="center">
   before you go, have a peek at my stamp collection! it's one of my favorite ways to express myself ^_^ (epilepsy warning!!)
   <p align="center">
