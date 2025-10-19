@@ -17,7 +17,7 @@
 ♡ fursuiter, artist, pony enthusiast, fanfic writer, music lover, old internet enjoyer ♡
 </p>
 <p align="center">
- currently hyperfixated on: my little pony, lapfox trax/halley labs, vinesauce, & my OCs ♡
+ currently hyperfixated on: hellsing, my little pony, lapfox trax/halley labs, vinesauce, & my OCs ♡
   <p align="center">
    <img src="https://files.catbox.moe/pv7nb5.gif"/>
   <p align="center">
