@@ -21,6 +21,9 @@
  </p>
 <p align="center">
  ♱ my f/os: alucard (hellsing), seras victoria (hellsing), renard (lapfox), piers (pokemon), king sombra (mlp). sharing is fine, just please be aware that i am protective of how i personally view these characters.
+ </p>
+<p align="center">
+ ♱ usually sitting with my friends lee & sunday, but sometimes i do sit alone. please whisper to interact, im often offtab if im alone.
   <p align="center">
    <img src="https://files.catbox.moe/45kxcc.gif"/>
   <p align="center">
