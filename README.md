@@ -28,6 +28,9 @@
   </p>
   <p align="center">
   ♱ it can take me a long time to warm up to people, so if i seem reserved while speaking to you that's why. i may also suddenly disconnect mid-convo. i do this when i get nervous! it's not personal.
+     </p>
+  <p align="center">
+  ♱ i typically find arguments revolving around fictional media to be extremely juvenile. i'm personally a "dont like, dont look" person. discourse isn't necessary. the block button is a wonderful thing. if you involve yourself in ship/fiction discourse very often, especially if you're 20+ (you are WAY too old to be doing all that..) we are not going to get along.
   </p>
   <p align="center">
   ♱ no DNI! doesn't mean im cool with anyone interacting, just means i prefer to curate my own experience. let's talk like adults and see how we click!
